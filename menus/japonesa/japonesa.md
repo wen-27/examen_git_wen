@@ -10,3 +10,10 @@
 - ramen 
 - tempura 
 - Okonomiyaki
+
+## Bebidas principales 
+
+- te verde
+- amazake
+- muguicha
+- ramune 
