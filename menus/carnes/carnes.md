@@ -40,3 +40,26 @@
 
 - Mojito: Fresco y con notas de menta y limón, ideal para carnes con salsas picantes. 
 Cócteles con frutas: Bebidas con frutas cítricas o tropicales pueden aportar frescura y contrarrestar la riqueza de la carne. 
+
+## Consejos y sugerencias
+
+- Cortes magros:
+Opta por cortes de carne con menos grasa visible, como solomillo, lomo o filete de cerdo, en lugar de cortes grasos como costillas o tocino.
+
+- Carnes blancas:
+Incluye más pescado y aves de corral en tu dieta, ya que suelen ser más magras que las carnes rojas.
+
+- Carnes procesadas:
+Limita el consumo de carnes procesadas como salchichas, embutidos y cecinas, ya que suelen ser altas en sodio y grasas saturadas. 
+
+- Métodos de cocción saludables:
+Prefiere métodos de cocción que no requieran agregar grasa adicional, como hornear, asar a la parrilla (con moderación y retirando la grasa), hervir o cocinar al vapor. 
+
+- Retira la grasa visible:
+Antes de cocinar, elimina toda la grasa visible de la carne para reducir el contenido de grasa saturada en tu comida. 
+
+- Escurre el exceso de grasa:
+Si cocinas la carne a la parrilla o la fríes, asegúrate de escurrir bien el exceso de grasa antes de servir. 
+
+- Combina con verduras:
+Acompaña la carne con una variedad de verduras y frutas para obtener una comida equilibrada y rica en nutrientes, como sugieren expertos de Harvard. 
