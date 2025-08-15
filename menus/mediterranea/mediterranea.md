@@ -26,3 +26,15 @@ Un plato vegetariano griego que es una cazuela de verduras al horno, como calaba
 
 - Pasta e Fagioli:
 Una sopa italiana tradicional hecha con pasta, frijoles y verduras. 
+
+## Bebidas recomendadas 
+
+- Limoncello: Un licor de limón italiano, popular como digestivo o en cócteles. 
+
+- Ouzo: Un licor anisado griego, también consumido en otras regiones mediterráneas. 
+
+- Grappa: Un aguardiente de orujo italiano. 
+
+- Pastis: Un licor francés con sabor a anís, a menudo diluido con agua. 
+
+- Spritz: Un cóctel italiano a base de vino blanco espumoso, Aperol o Campari y soda. 
