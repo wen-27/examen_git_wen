@@ -9,3 +9,10 @@ se caracteriza por su riqueza de sabores, colores y aromas, resultado de una fus
 - mole
 - quesadillas
 - chilaquies
+
+## bebidas recomendadas 
+
+- tapache
+- atole
+- mezcal
+- tequila
