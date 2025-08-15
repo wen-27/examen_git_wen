@@ -58,3 +58,26 @@ Algunas cervezas con notas dulces o afrutadas pueden ser una buena opción para 
 
 - Cócteles con helado:
 Un batido alcohólico o un coctel con helado puede ser un postre y una bebida a la vez, señala Liquor.com. 
+
+## Consejos y sugerencias.
+
+- Comer con atención plena:
+Disminuye el ritmo al comer, respira y concentra tu atención en el sabor, la textura y la experiencia del postre. 
+
+- Reducir distracciones:
+Evita comer frente a la televisión o el teléfono, para estar más presente con tu comida. 
+
+- Controlar las porciones:
+Considera servir postres en tamaños más pequeños o compartir porciones con otros. 
+
+- Sustituciones saludables:
+Opta por frutas, yogur griego con frutas, o chocolate negro en lugar de postres con alto contenido de azúcar y grasas. 
+
+- Comer después de las comidas:
+Comer postres después de una comida principal puede ayudar a reducir la cantidad que consumes. 
+
+- Planificación y moderación:
+Si tienes diabetes, planifica con anticipación y consume postres con moderación, contando los carbohidratos. 
+
+- Crear un ambiente agradable:
+Disfruta de los postres en compañía de amigos y familiares en ocasiones especiales, en lugar de como un hábito diario. 
