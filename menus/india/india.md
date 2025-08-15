@@ -9,3 +9,9 @@ se caracteriza por su uso extensivo de especias, sabores intensos y una gran var
 - Pollo Tikka Masala
 - pollo marinado y asado en salsa cremosa
 - Pollo Tandoori
+
+## bebidas recomendadas 
+
+- chai
+- lassi
+- feni
