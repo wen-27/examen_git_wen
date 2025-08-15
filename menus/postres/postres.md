@@ -28,4 +28,33 @@ Una tarta hecha con una base de galleta y un relleno cremoso de queso, a menudo 
 Un helado turco masticable y resistente a la fusión, hecho con salep (harina de orquídea) y goma arábiga. 
 
 - Arroz con Leche (varios países):
-Un postre cremoso hecho con arroz cocido en leche, azúcar y especias, como canela y vainilla. 
+Un postre cremoso hecho con arroz cocido en leche, azúcar y especias, como canela y vainilla. ç
+
+## Bebidas principales 
+
+- Vino dulce:
+Un vino como el Oporto o el Moscatel puede ser un excelente acompañamiento para postres como tartas de frutas o quesos, según Payless Liquors.
+
+- Vino espumoso:
+Un prosecco o un cava puede equilibrar la dulzura de postres como pasteles y galletas. 
+
+- Chocolate caliente:
+El chocolate caliente es un clásico que combina bien con casi cualquier postre, especialmente con galletas y pasteles, afirma Hotel Chocolat.
+
+- Café:
+Un buen café, ya sea solo, con leche o en un latte, es una opción versátil para maridar con postres, según Matrimonio.com.co.
+
+- Té Chai:
+El té chai, con sus especias y sabores cálidos, puede ser una excelente opción para disfrutar con postres especiados o de chocolate. 
+
+- Bebidas alcohólicas de postre:
+Licores dulces, brandy, o cocteles a base de licor, pueden ser una opción para acompañar postres más intensos y con sabores complejos. 
+
+- Limonada o soda con limón:
+Una bebida refrescante como la limonada o la soda con limón puede ser un buen contrapunto a postres muy dulces. 
+
+- Cerveza dulce o de postre:
+Algunas cervezas con notas dulces o afrutadas pueden ser una buena opción para acompañar postres, indica Matrimonio.com.co.
+
+- Cócteles con helado:
+Un batido alcohólico o un coctel con helado puede ser un postre y una bebida a la vez, señala Liquor.com. 
