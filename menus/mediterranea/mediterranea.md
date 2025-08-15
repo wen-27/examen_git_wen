@@ -38,3 +38,26 @@ Una sopa italiana tradicional hecha con pasta, frijoles y verduras.
 - Pastis: Un licor francés con sabor a anís, a menudo diluido con agua. 
 
 - Spritz: Un cóctel italiano a base de vino blanco espumoso, Aperol o Campari y soda. 
+
+## Consejos y sugerencias
+
+- Abundancia de vegetales:
+Prioriza las verduras y frutas frescas en cada comida, apuntando a tres o cuatro porciones al día. 
+
+- Grasas saludables:
+Utiliza aceite de oliva virgen extra como principal fuente de grasa para cocinar y aderezar tus platos, según Olivetto. 
+
+- Pescado y aves:
+Incluye pescado blanco y azul, así como aves de corral, en tu alimentación semanal. 
+
+- Legumbres:
+Incorpora legumbres como lentejas, garbanzos y frijoles en tu dieta al menos tres veces por semana. 
+
+- Lácteos con moderación:
+Opta por productos lácteos bajos en grasa y quesos con sabor intenso en porciones moderadas. 
+
+- Carnes rojas con moderación:
+Limita el consumo de carne roja y prioriza otras fuentes de proteína como el pescado y las legumbres. 
+
+- Cereales integrales:
+Sustituye los cereales refinados por integrales como arroz integral, quinoa o avena. 
