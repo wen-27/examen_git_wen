@@ -10,3 +10,10 @@
 - Cerdo agridulce
 - Pollo Kung Pao
 - Arroz frito
+
+## Bebidas recomendadas 
+
+- te
+- baijiu
+- cerveza
+- bubble te
