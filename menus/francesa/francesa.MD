@@ -30,3 +30,21 @@
 - Licor de cereza (Guignolet): Un licor tradicional de cereza que se puede tomar solo o en cócteles. 
 
 - Coñac y Armañac: Brandy francés que se suele tomar como digestivo después de las comidas. 
+
+## consejos y sugerencias 
+
+- Ingredientes: Utiliza ingredientes frescos y de calidad para potenciar los sabores. 
+
+- Técnicas básicas: Aprende a elaborar un mirepoix y un roux para tus salsas y guisos. 
+
+- Platos emblemáticos: Prueba los platos clásicos como Coq au Vin, Boeuf Bourguignon, Soupe à l'oignon, entre otros. 
+
+- Postres: No te pierdas los macarrones, Crème Brûlée o Tarte Tatin. 
+
+- Opciones ligeras: Si buscas algo más ligero, puedes optar por ensaladas, sopas frías o platos con ingredientes poco cocinados. 
+
+- Mercados: Visita los mercados locales para encontrar productos frescos y de temporada. 
+
+- Restaurantes: Experimenta los diferentes tipos de restaurantes, desde creperías hasta restaurantes con alta cocina. 
+
+- Reducción de grasa: Si buscas opciones más saludables, puedes reducir la grasa en las salsas sustituyendo parte del aceite por caldo espesado o yogur sin grasa, según BBC. 
